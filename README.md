@@ -1,1 +1,3 @@
-# tvbharat24
+Voice of media tvbharat
+
+Tvbharat24 is today’s Voice of Media in India. In today’s corrupted world where even, the news is fake and corrupted, we are trying to be the true Voice of Media and give as accurate news as possible. Tvbharat24 provides you with India’s top most Latest and Trending topics on a day-to-day basis. New news every day to keep you updated with issues around the country. No energy to read so much? No worries we got you covered with our mini web stories that provide you with so much information in just 10 slides. Political updates, entertainment industry’s hot topics, new technology in the market, daily match updates – we have everything you want here on our site. Let us give rebirth to that media which was failed by corrupted journalists. Come join us by supporting us and let us together be the Voice of Media – the Indian Voice of Media. 
